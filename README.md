@@ -118,7 +118,7 @@ Four statuses exist for the Diversity and Inclusion Event Badging:
 - @adeyinkaoresanya returned in Apr 2026 after a break! 🎉
 - @ElizabethN returned in Jun 2026 after a break! 🎉
 
-_Last Updated: 2026-06-08_  
+_Last Updated: 2026-06-15_  
 
 
 
